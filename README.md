@@ -1,1 +1,0 @@
-# mertin-en-iyi-botu
